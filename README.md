@@ -1,4 +1,4 @@
-- 👋 Hi, I’m Ellen
-- 🌱 I’m currently learning me formar para ter minha profissão
-- 💞️ I’m looking to collaborate on com a sociedade e o mundo
-- 📫 How to reach me : ellenlopes112004@gmail.com
+- 👋 Hi, I'm Ellen
+- 🌱 I'm currently learning to graduate to have my profession
+- 💞️ I try to collaborate with society and the world
+- 📫 How to contact me: ellenlopes112004@gmail.com
